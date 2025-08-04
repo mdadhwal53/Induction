@@ -1,7 +1,3 @@
-# Induction - Day 1
-## 8:30AM - 9:30AM
-- Shabad Kirtan in College Gurudwara Sahib
-- [img](https://gndec.ac.in/gndec/2023/WhatsApp%20Image%202023-04-20%20at%2011.13.22%20PM%20(4).jpeg)
-## 9:30AM - 10:30AM
-- Tea & Snacks
-## 10:30AM ONWARDS
+# Induction Program
+## DAY 1
+-It was my first day in gndec college,ludhiana.As the college is named after guru nanak dev ji,so in college gurudwara we started our new journey with his blessings. there was shabad kirtan in college gurudwara from 8:30AM to 9:30AM- [img](https://gndec.ac.in/gndec/2023/WhatsApp%20Image%202023-04-20%20at%2011.13.22%20PM%20(4).jpeg).after that there was tea and snacks refreshments by college to the new comers and then we all gathered in auditorium for inaugural ceremony arranged by our professors and seniors very beautifully.once the ceremony was started, our host invited our speakers who delivered us useful and motivational messages about our college life.
